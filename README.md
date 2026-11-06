@@ -8,5 +8,7 @@ https://pikabu.ru/story/nebanalnyie_faktyi_o_sakhare_v_kotoryie_trudno_poverit_c
 4. https://teach-in.ru/course/geophysics-and-physics-of-planets-p1
 ***
 https://t.me/geosferum/1477?single
+
+https://t.me/geosferum/1579?single
 ***
 https://vkvideo.ru/video-210121871_456240749
